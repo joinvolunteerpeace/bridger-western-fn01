@@ -1,4 +1,4 @@
-
+Experience bridger western like never before with vip bridger western Scripts, the #1 Script. Includes unlimited stamina and auto-farm for unbeatable
 
 
 
